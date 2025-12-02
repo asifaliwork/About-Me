@@ -79,7 +79,7 @@ I love writing maintainable code, solving real-world problems, and building back
 ---
 
 ## 📫 Let's Connect!
-- **LinkedIn:** *[https://www.linkedin.com/in/asifalidotnet]*  
+- **LinkedIn:** *www.linkedin.com/in/asifali015*  
 - **Email:** *asifkhanali015@gmail.com*  
 - **Open to freelance work:** ✔ Yes  
 
